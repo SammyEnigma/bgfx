@@ -724,7 +724,7 @@ mobile platforms.
 
 ![Harbi2 screenshot](https://h2mb.b-cdn.net/image.webp)
 
-## Metal Gear Solid 4 : Guns of the patriots
+## METAL GEAR SOLID 4: Guns of the Patriots
 
 https://store.steampowered.com/app/2492670/METAL_GEAR_SOLID_4_Guns_of_the_Patriots__Master_Collection_Version/ 2026 remaster of the 2008 action-adventure stealth video game.
 
